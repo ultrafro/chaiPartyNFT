@@ -2,7 +2,7 @@
 
 _This is a digital metaverse, the first of it's kind exploring the boundless expanse which is Chai. Digital herbs (DHERBS) mix, quantum infinities, and new social contracts mix together to create a rare but powerful trans-human-organizational experience: THE CHAI PARTY._
 
-Simply go to: ____ to experience.
+Simply go to: https://61bef242d9a2699c7e7dc528--gifted-cori-a08ce9.netlify.app/ to experience.
 
 
 **_Bask in a limitless plane of steamy deliciousness._**
